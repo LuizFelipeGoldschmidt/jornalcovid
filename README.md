@@ -1,0 +1,2 @@
+# jornalcovid
+edutech professora thaiane
